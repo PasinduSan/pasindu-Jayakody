@@ -1,2 +1,0 @@
-# pasindu-Jayakody
-CURRICULUM VITAE
